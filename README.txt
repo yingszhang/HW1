@@ -1,2 +1,0 @@
-Yingshuo Zhang
-Atlanta Braves
